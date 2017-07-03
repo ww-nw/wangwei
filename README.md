@@ -1,2 +1,2 @@
 ### Java
-![](http://www.zbjuran.com/mei/xiaohua/201611/75944.html)
+![](http://ww3.sinaimg.cn/bmiddle/4a4673aagy1fh6hclcrzzj20hs0gj422.jpg)
